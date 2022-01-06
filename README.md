@@ -2,7 +2,7 @@
 ## _Name_- Hasib Hossain
 ## _Email_- hasibh0960@hstat.org
 ## _School_- [HSTAT](https://www.hstat.org/)
-## _Bio_- look art curry mayne.
+## _Bio_- look at Yousif mayne.
 ### _Schedule_-
   1. Global History
   2. Algebra 2
